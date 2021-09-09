@@ -1,2 +1,3 @@
-- 👋 Hi, I’m @Majd-a-h
+- 👋 Hi, I’m MAJD ABOU HASHISH
 - 📫 How to reach me https://www.instagram.com/majd.a.h/
+- LinkedIn: https://www.linkedin.com/in/majd-abou-hashish-172321220/
